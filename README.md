@@ -8,13 +8,4 @@ Now are our brows bound with victorious wreaths;
 Our bruised arms hung up for monuments;
 Our stern alarums changed to merry meetings,
 Our dreadful marches to delightful measures.
-Grim-visaged war hath smooth'd his wrinkled front;
-And now, instead of mounting barded steeds
-To fright the souls of fearful adversaries,
-He capers nimbly in a lady's chamber
-To the lascivious pleasing of a lute.
-But I, that am not shaped for sportive tricks,
-Nor made to court an amorous looking-glass;
-I, that am rudely stamp'd, and want love's majesty
-To strut before a wanton ambling nymph;
-I, that am curtail'd of this fair proportion,
+and containe changed.
